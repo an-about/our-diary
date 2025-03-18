@@ -1,1 +1,1 @@
-## an-about/of-us
+## an-about/our-diary
